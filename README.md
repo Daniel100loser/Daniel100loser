@@ -1,6 +1,6 @@
 ### Have a good day! 😎
 
-Meu no me é Daniel Alves, e este é meu perfil do github, é bem vazio eu sei 😢
+Meu nome é Daniel Alves, e este é meu perfil do github, é bem vazio eu sei 😢
 
 My name is Daniel Alves, and this is my github's profile, it's very empty i know 😢
 
